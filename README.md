@@ -1,2 +1,0 @@
-# DevKingTur
-Uji coba
